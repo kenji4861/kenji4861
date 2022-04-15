@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kenji4861
+- 🐕‍🦺Assistant to Cashew, the dog
+- 💰Master of buy high, sell low
+- 💻Former Software Engineer
+- 🌱 I’m currently learning swift
+- 📫 You can DM me at @kenjitweet
